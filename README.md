@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Om
+- 👀 I’m interested in cars, codes, planes and weights
+- 🌱 I’m currently learning full stack, deep learning
+- 📫 @om.229303076@muj.manipal.edu
+- ⚡ Fun fact: I am a national level foorball player
